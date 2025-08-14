@@ -55,5 +55,8 @@ LOW-REVENUE PRODUCTS MAY REQUIRE PRICE ADJUSTMENTS, PROMOTIONS, OR STOCK REDUCTI
 
 ## OUTPUT
 
+<img width="1210" height="915" alt="Image" src="https://github.com/user-attachments/assets/3bd028e2-c165-46f3-9c4a-d5d357e991c5" />
+
+<img width="1000" height="600" alt="Image" src="https://github.com/user-attachments/assets/a32cf855-5649-407f-b693-a4e974e8e48f" />
 
 
